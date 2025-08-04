@@ -43,4 +43,12 @@ We had lunch at hostel mess in this time period
 
 ### Auditorium /Time:-1:00 PM to 3:00 PM
 **Expert Lecture by Dr. Arashdeep Singh/time:-1:00PM**
+
 Sir gave all of us a full fledged lecture on Food role in students overall wellness and health giving a diet to help stay focused and energized and do well in acadmics as well as in sports or and extra curricular activities and it was a really interesting lecture really enjoyed it
+**Session by Causmic Club**
+The members of causmic club introduced github to everyone and told write every induction day held in readme txt file to submit at last day of induction 
+
+
+## Day 3 (August,02 2025)
+### Auditorium /Time:-9:00AM to 1:00PM
+* **Expert Lecture by Dr Jaswinder Singh /Time:-9:00AM**
