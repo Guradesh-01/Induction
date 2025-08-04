@@ -51,4 +51,8 @@ The members of causmic club introduced github to everyone and told write every i
 
 ## Day 3 (August,02 2025)
 ### Auditorium /Time:-9:00AM to 1:00PM
-* **Expert Lecture by Dr Jaswinder Singh /Time:-9:00AM**
+Dr. harpreet kaur mam picked 1 student and told him and all of us to recite Mool Mantar 5 times 
+* **Expert Lecture by Dr Jaswinder Singh  Time:-9:00AM**
+>Incharge of IAPT and inventer of JaswinS
+Sir' lecture was really instersting and fun lecture it was related to Mathematics gave us examples and alot of things they told us about the meaning of (੧ਓ) in Maths they showed us how a spark can create a ignition in bottle with fuel sparyed inside and they taught us how to meet (ਪਰਮਾਤਮਾ) they were given Award at the end by the college 
+* **Expert Lecture by Priya Darshni  Time:-11:00PM**
