@@ -62,7 +62,7 @@ Sir's lecture was really instersting and fun lecture it was related to Mathemati
 * **Expert Lecture by Dr. Priya Darshni madam   Time:-11:00PM**
 
 >They taught us about Universal Human values (UHV), It was 1st session of CS/IT students with her. She told us that which 3 things are needed to be continuously happy in life which are
-
+* Types
    * Right Understanding 
    * Physical Facility 
    * Relationship
