@@ -47,7 +47,7 @@ We had lunch at hostel mess in this time period
 
 Sir gave all of us a full fledged lecture on Food role in students overall wellness and health giving a diet to help stay focused and energized and do well in acadmics as well as in sports or and extra curricular activities and it was a really interesting lecture really enjoyed it
 **Session by Causmic Club**
-The members of causmic club introduced github to everyone and told write every induction day held in readme txt file to submit at last day of induction 
+:-The members of causmic club introduced github to everyone and told to write every induction day held in readme txt file to submit at last day of induction 
 
 
 ## Day 3 (August,02 2025)
@@ -57,4 +57,9 @@ Dr. harpreet kaur mam picked 1 student and told him and all of us to recite Mool
 >Incharge of IAPT and inventer of JaswinS
 
 Sir's lecture was really instersting and fun lecture it was related to Mathematics gave us examples and alot of things they told us about the meaning of (੧ਓ) in Maths they showed us how a spark can create a ignition in bottle with fuel sparyed inside and they taught us how to meet (ਪਰਮਾਤਮਾ) they were given Award at the end by the college 
-* **Expert Lecture by Priya Darshni  Time:-11:00PM**
+* **Expert Lecture by Dr. Priya Darshni madam   Time:-11:00PM**
+They thaught us about Universal Human values (UHV), It was 1st session of CS/IT students with her. She told us that which 3 things are needed to be continuously happy in life which are
+* Right Understanding 
+* Physical Facility 
+* Relationship
+It was an interactive session in which students can ask questions and give answers. At the end she gave us an Assignment to complete how you manage your time into these 3 things and to be discussed on in next session with Madam 
