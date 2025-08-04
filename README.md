@@ -35,6 +35,7 @@ Shri Ravinder garg
 **English Test  /Time:-9:30AM to 10:30AM**
 It was a test conducted by the college to test our knowledege 
 and class invigilators were our seniors 
+
 **Math Test    /Time:-10:30AM to 11:30AM**
 
 It was also taken same as the English Test
@@ -46,6 +47,7 @@ We had lunch at hostel mess in this time period
 **Expert Lecture by Dr. Arashdeep Singh/time:-1:00PM**
 
 Sir gave all of us a full fledged lecture on Food role in students overall wellness and health giving a diet to help stay focused and energized and do well in acadmics as well as in sports or and extra curricular activities and it was a really interesting lecture really enjoyed it
+
 **Session by Causmic Club**
 :-The members of causmic club introduced github to everyone and told to write every induction day held in readme txt file to submit at last day of induction 
 
