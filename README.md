@@ -25,7 +25,10 @@ Shri Ravinder garg
 > Cheif engineer at Munciple Corporation Ludhiana
 
 **The overall induction session was very inspiring and insightful, the session gave us valuable insights about college life personal growth, etc**
-## Departmentsl Visit Time 4:00 PM
+## Departmental Visit /Time 4:00 PM
  All the Teachers showed us our department building and classrooms in which we will study during Second Year
 
-## Day 2 (August,01 2025)
+## Day 2 (August,01 2025) 
+
+### Proficiency Test 
+**English Test** ## Time:-9:30AM to 10:30AM
