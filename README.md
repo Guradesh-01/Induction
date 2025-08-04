@@ -46,6 +46,7 @@ We had lunch at hostel mess in this time period
 
 Sir gave all of us a full fledged lecture on Food role in students overall wellness and health giving a diet to help stay focused and energized and do well in acadmics as well as in sports or and extra curricular activities and it was a really interesting lecture really enjoyed it
 **Session by Causmic Club**
+
 The members of causmic club introduced github to everyone and told write every induction day held in readme txt file to submit at last day of induction 
 
 
@@ -54,5 +55,6 @@ The members of causmic club introduced github to everyone and told write every i
 Dr. harpreet kaur mam picked 1 student and told him and all of us to recite Mool Mantar 5 times 
 * **Expert Lecture by Dr Jaswinder Singh  Time:-9:00AM**
 >Incharge of IAPT and inventer of JaswinS
-Sir' lecture was really instersting and fun lecture it was related to Mathematics gave us examples and alot of things they told us about the meaning of (੧ਓ) in Maths they showed us how a spark can create a ignition in bottle with fuel sparyed inside and they taught us how to meet (ਪਰਮਾਤਮਾ) they were given Award at the end by the college 
+
+Sir's lecture was really instersting and fun lecture it was related to Mathematics gave us examples and alot of things they told us about the meaning of (੧ਓ) in Maths they showed us how a spark can create a ignition in bottle with fuel sparyed inside and they taught us how to meet (ਪਰਮਾਤਮਾ) they were given Award at the end by the college 
 * **Expert Lecture by Priya Darshni  Time:-11:00PM**
