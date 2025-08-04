@@ -35,10 +35,12 @@ Shri Ravinder garg
 **English Test  /Time:-9:30AM to 10:30AM**
 It was a test conducted by the college to test our knowledege 
 and class invigilators were our seniors 
-**Math Test b.   /Time:-10:30AM to 11:30AM
+**Math Test    /Time:-10:30AM to 11:30AM**
 It was also taken same as the English Test
 
 ### Break /Time:-11:30AM to 1:00PM
 We had lunch at hostel mess in this time period 
 
-### Auditorium /Time:-1:00 PM
+### Auditorium /Time:-1:00 PM to 3:00 PM
+**Expert Lecture by Dr. Arashdeep Singh/time:-1:00PM**
+Sir gave all of us a full fledged lecture on Food role in students overall wellness and health giving a diet to help stay focused and energized and do well in acadmics as well as in sports or and extra curricular activities and it was a really interesting lecture really enjoyed it
