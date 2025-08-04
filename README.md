@@ -1,4 +1,10 @@
 # Induction
+
+## Name:- Guradesh singh Dhanjal
+## Fater's Name:- Gurpal Singh
+## Branch:- Computer Science 
+
+
 ## Day 1 (July,31 2025)
 
 ### Gurudwara Sahib        / Time:-8:30 
