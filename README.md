@@ -64,4 +64,5 @@ They thaught us about Universal Human values (UHV), It was 1st session of CS/IT 
    * Right Understanding 
    * Physical Facility 
    * Relationship
+
 It was an interactive session in which students can ask questions and give answers. At the end she gave us an Assignment to complete how you manage your time into these 3 things and to be discussed on in next session with Madam 
