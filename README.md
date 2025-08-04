@@ -28,7 +28,8 @@ Shri Ravinder garg
 ## Departmental Visit /Time 4:00 PM
  All the Teachers showed us our department building and classrooms in which we will study during Second Year
 
+
 ## Day 2 (August,01 2025) 
 
 ### Proficiency Test 
-**English Test** ## Time:-9:30AM to 10:30AM
+**English Test  /Time:-9:30AM to 10:30AM**
