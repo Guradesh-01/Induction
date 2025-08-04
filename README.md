@@ -60,7 +60,8 @@ Dr. harpreet kaur mam picked 1 student and told him and all of us to recite Mool
 
 Sir's lecture was really instersting and fun lecture it was related to Mathematics gave us examples and alot of things they told us about the meaning of (੧ਓ) in Maths they showed us how a spark can create a ignition in bottle with fuel sparyed inside and they taught us how to meet (ਪਰਮਾਤਮਾ) they were given Award at the end by the college 
 * **Expert Lecture by Dr. Priya Darshni madam   Time:-11:00PM**
-They thaught us about Universal Human values (UHV), It was 1st session of CS/IT students with her. She told us that which 3 things are needed to be continuously happy in life which are
+
+>They taught us about Universal Human values (UHV), It was 1st session of CS/IT students with her. She told us that which 3 things are needed to be continuously happy in life which are
    * Right Understanding 
    * Physical Facility 
    * Relationship
