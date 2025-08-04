@@ -9,7 +9,7 @@
 
 ### Gurudwara Sahib        / Time:-8:30 AM
 On the First day of college we visited Gurudwara sahib which is built in a shape of a ship (jahaz of Guru ji). Inside there was a Kirtani jatha who were doing Kirtan after that they recited Sri Chupai Sahib and Sri Anand Sahib and at last the Ardas was recited 
-### Auditorium      /  Time :-10:30 AM
+### Auditorium      /  Time:-10:30 AM
 Harleen kaur
     She welcomed the new batch of CS/IT students with enthusiasm. She told about the value of academics, activities, discipline and taught us how to maintain a well balanced life.
 Dr Sehajpal singh                       
@@ -25,7 +25,7 @@ Shri Ravinder garg
 > Cheif engineer at Munciple Corporation Ludhiana
 
 **The overall induction session was very inspiring and insightful, the session gave us valuable insights about college life personal growth, etc**
-## Departmental Visit /Time 4:00 PM
+### Departmental Visit /Time:-4:00 PM
  All the Teachers showed us our department building and classrooms in which we will study during Second Year
 
 
@@ -33,3 +33,12 @@ Shri Ravinder garg
 
 ### Proficiency Test 
 **English Test  /Time:-9:30AM to 10:30AM**
+It was a test conducted by the college to test our knowledege 
+and class invigilators were our seniors 
+**Math Test b.   /Time:-10:30AM to 11:30AM
+It was also taken same as the English Test
+
+### Break /Time:-11:30AM to 1:00PM
+We had lunch at hostel mess in this time period 
+
+### Auditorium /Time:-1:00 PM
