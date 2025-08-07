@@ -3,6 +3,7 @@
     Name:- Guradesh singh Dhanjal
     Fater's Name:- Gurpal Singh
     Branch:- Computer Science 
+    Section:- B (B2)
 
 
 ## Day 1 (July,31 2025)
@@ -68,3 +69,25 @@ Sir's lecture was really instersting and fun lecture it was related to Mathemati
    * Relationship
 
 It was an interactive session in which students can ask questions and give answers. At the end she gave us an Assignment to complete how you manage your time into these 3 things and to be discussed on in next session with Madam 
+
+
+## Day 4 (August,04 2025)
+### Auditorium /Time:-12:30PM to 3:30PM
+* **Expert Lecture by Dr. Priya Darshni madam   Time:-12:30PM**
+In this lecture we disscused the  assingment given by mam and they told us about the UHV Test which will be conducted in 4th Year and then she ended the lecture. It was really thoughtful session by her
+
+* **Session by Causmic club   Time:-2:30PM**
+All the members of causmic club gave us a brief about their club how to join and told us to follow instagram page ‘causmic_club’ for more information, after that a student/member of the club joined the stage and started singing with his guitar, his voice was very good and thats it where the session ends at 3:30
+
+
+## Day 5 (August,05 2025)
+### Classes  /Time:-10:30AM to 12:30PM
+* ** Beee Lecture   Time:-10:30AM**
+> Prof. Harminder Kaur (ECE)
+
+In this lecture Mam took introduction of every student after that they told us ‘Why these sessions of Induction program are held’
+
+* **Chemistry Lecture   Time:-11:30AM**
+> Prof. Mandeep Kaur
+
+In this lecture Mam gave us the syllabus of chemistry 
