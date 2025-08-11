@@ -82,7 +82,7 @@ All the members of causmic club gave us a brief about their club how to join and
 
 ## Day 5 (August,05 2025)
 ### Classes  /Time:-10:30AM to 12:30PM
-* ** Beee Lecture   Time:-10:30AM**
+* **Beee Lecture   Time:-10:30AM**
 > Prof. Harminder Kaur (ECE)
 
 In this lecture Mam took introduction of every student after that they told us ‘Why these sessions of Induction program are held’
@@ -91,3 +91,18 @@ In this lecture Mam took introduction of every student after that they told us �
 > Prof. Mandeep Kaur
 
 In this lecture Mam gave us the syllabus of chemistry 
+
+
+## Day 6 (August,06 2025)
+### Classes   /Timw:-9:30AM to 11:30AM
+* **Chemistry Lecture   Time:-9:30AM**
+>Prof. Mandeep Kaur
+
+This lecture mam started the syllabus 
+
+* **Math Lecture   Time:-10:30AM**
+>Prof. Gagandeep Kaur
+
+In this lecture Mam gave us a breif about how the semester works in college, like how many lectures will be done per subject how extra curricular activities give advantages in increasing the numbers in assesment
+
+### Auditorium /Time 
