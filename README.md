@@ -105,4 +105,16 @@ This lecture mam started the syllabus
 
 In this lecture Mam gave us a breif about how the semester works in college, like how many lectures will be done per subject how extra curricular activities give advantages in increasing the numbers in assesment
 
-### Auditorium /Time 
+### Auditorium /Time:-12:30PM to 4:00PM
+* **Gurcharan Singh**
+> General Secretary of SGPC 
+
+Sir told us stories about thier study and activities in their time in 1984 
+
+* **Dr. Lakvir Singh khana /Time:-3:30** 
+> Incharge- CML
+
+
+
+## Day 7 ( August,07 2025)
+###
