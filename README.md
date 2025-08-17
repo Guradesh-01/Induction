@@ -121,4 +121,16 @@ Sir told us stories about thier study and activities in their time in 1984
 * **Lecture by Amit Kamara**
 > Incharge- DMC
 
+* **Causmic Club**
+Tranpreet kaur (Lead creative team) started taking introduction of students but we were having shortage in time so we stopped 
+
+* **Dr. Randheer Singh**
+>  Associate professor 
+
+Sir told us about the pattern of Examination,Mid semester tests and practicals etc 
+
+
+## Conclusion 
+All the induction program was great 
+
 
