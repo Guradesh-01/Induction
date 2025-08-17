@@ -117,4 +117,8 @@ Sir told us stories about thier study and activities in their time in 1984
 
 
 ## Day 7 ( August,07 2025)
-###
+### Auditorium /Time:-9:30AM to 12:30PM
+* **Lecture by Amit Kamara**
+> Incharge- DMC
+
+
