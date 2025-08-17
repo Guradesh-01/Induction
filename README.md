@@ -130,6 +130,12 @@ Tranpreet kaur (Lead creative team) started taking introduction of students but 
 Sir told us about the pattern of Examination,Mid semester tests and practicals etc 
 
 
+
+
+
+
+
+
 ## Conclusion 
 All the induction program was great 
 
